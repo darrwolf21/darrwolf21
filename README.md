@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @darrwolf21
+- 👋 Hi, I’m Harmony @darrwolf21
 - 👀 I’m interested in photography, computers and coding.
 - 🌱 I’m currently working towards a degree in IT Website Programming.
 
